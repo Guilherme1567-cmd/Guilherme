@@ -1,2 +1,1 @@
-# Guilherme
-Brain rot
+scriptbrainrotfeitoporgb
